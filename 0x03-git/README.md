@@ -1,0 +1,1 @@
+sedney is rich 
