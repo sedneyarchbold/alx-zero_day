@@ -1,1 +1,1 @@
-sedney is rich 
+sedney is rich !
